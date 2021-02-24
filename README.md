@@ -1,6 +1,6 @@
 # Você sabia que o formato do seu corpo pode explicar os conflitos que você possui em seus relacionamentos interpessoais?
 ## Você tem um formato de corpo que revela a sua mente e explica a sua história de vida.
-##### Durante a sua formação (vida intra-uterina até os 5 anos de idade), quando o seu sistema nervoso estava sendo mielinizado, foram registradas dores e desenvolvidos recursos que moldaram o seu corpo e lhe deram a mente que você tem hoje.
+##### Durante a sua formação (vida intra-uterina até aos 5 anos de idade), quando o seu sistema nervoso estava sendo mielinizado, foram registradas dores e desenvolvidos recursos que moldaram o seu corpo e lhe deram a mente que você tem hoje.
 Em cada período seu sistema límbico estava registrando fatos ambientais que sua mente interpretava como dor, então sua mente desenvolvia rercursos para sair dessas dores formando os traços de caráter.
 
 Existem cinco traços de caráter:
