@@ -7,13 +7,13 @@ Existem cinco traços de caráter:
 
 * Esquizóide
 
-* Oral;
+* Oral
 
-* Psicopata;
+* Psicopata
 
-* Masoquista;
+* Masoquista
 
-* Rígido.
+* Rígido
 
 Cada um deles agem e reagem no mundo de maneiras distintas e para você ter o autoconhecimento que irá te levar a entender como você funciona e como as pessoas que convivem com você funcionam, você terá que fazer uma **análise corporal.** 
 
