@@ -2,7 +2,7 @@
 ## Você tem um formato de corpo que revela a sua mente e explica a sua história de vida.
 ##### 	Durante a sua formação (vida intrauterina até aos 5 anos de idade), quando o seu sistema nervoso estava sendo mielinizado, foram registradas dores e desenvolvidos recursos que moldaram o seu corpo e lhe deram a mente que você tem hoje.
 
-Em cada período seu sistema límbico estava registrando fatos ambientais que sua mente interpretava como dor, então sua mente desenvolvia recursos para sair dessas dores formando os traços de caráter.
+Em cada período seu sistema límbico estava registrando fatos ambientais que sua mente interpretava como dor, então seu sistema nervoso criava caminhos neurais desenvolvendo recursos para sair dessas dores formando os traços de caráter.
 
 Existem cinco traços de caráter:
 
