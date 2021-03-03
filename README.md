@@ -24,7 +24,7 @@ Através dessa análise você terá autoconhecimento: saberá quais são os seus
 
 #### Quer saber mais? 
 
-Me siga no [Instagram](https://www.instagram.com/suelencassiaa) e no [facebook](https://fb.com/fonoaudiologa.suelencassia) e fique sabendo como solucionar os conflitos nos seus relacionamentos interpessoais.
+Me siga no [Instagram](https://www.instagram.com/suelencassiaa) e no [facebook](https://fb.com/fonoaudiologa.suelencassia) e fique sabendo como solucionar os conflitos que vocë possui.
 
 
 
