@@ -16,11 +16,11 @@ Existem cinco traços de caráter:
 
 * Rígido
 
-Cada um deles agem e reagem no mundo de maneiras distintas e para você ter o autoconhecimento que irá te levar a entender como você funciona para assim entender também como as pessoas que convivem com você funcionam, você terá que fazer uma **análise corporal.** 
+Cada um deles agem e reagem no mundo de maneiras distintas e para você ter o autoconhecimento que irá te levar a entender como a sua mente funciona, você terá que fazer uma **análise corporal.** 
 
 Após o processo de mielinização o seu corpo foi moldado de acordo com o que ficou registrado em sua mente, por isso na análise corporal, observando o formato do seu corpo, irei te dar o mapeamento de sua mente.
 
-Através dessa análise você terá autoconhecimento: saberá quais são os seus recursos, as dores que você tenta evitar e quais são os melhores ambientes para você existir; você entenderá também como as mentes das pessoas que você se relaciona funcionam e terá estratégias para ter uma **comunicação assertiva em seus relacionamentos interpessoais**, com isso você irá **solucionar os conflitos que hoje você vivencia**.
+Através dessa análise você terá autoconhecimento: saberá quais são os seus recursos (habilidades), as dores que você tenta evitar e quais são os melhores ambientes para você existir; você irá entender como você pensa, sente e age no mundo tendo um caminho para a solução dos seus conflitos, você entenderá também como as mentes das pessoas que você se relaciona funcionam e terá estratégias para ter uma **comunicação assertiva em seus relacionamentos interpessoais**, com isso você irá **solucionar os conflitos que hoje você vivencia**.
 
 #### Quer saber mais? 
 
