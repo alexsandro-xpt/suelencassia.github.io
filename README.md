@@ -20,7 +20,7 @@ Cada um deles agem e reagem no mundo de maneiras distintas e para você ter o au
 
 Após o processo de mielinização o seu corpo foi moldado de acordo com o que ficou registrado em sua mente, por isso na análise corporal, observando o formato do seu corpo, irei te dar o mapeamento de sua mente.
 
-Através dessa análise você terá autoconhecimento: saberá quais são os seus recursos (habilidades), as dores que você tenta evitar e quais são os melhores ambientes para você existir; você irá entender como você pensa, sente e age no mundo tendo um caminho para a solução dos seus conflitos, você entenderá também como as mentes das pessoas que você se relaciona funcionam e terá estratégias para ter uma **comunicação assertiva em seus relacionamentos interpessoais.**
+Através dessa análise você terá autoconhecimento: saberá quais são os seus recursos (habilidades), as dores que você tenta evitar e quais são os melhores ambientes para você existir; você irá entender como você **pensa, sente e age no mundo tendo um caminho para a solução dos seus conflitos**, você entenderá também como as mentes das pessoas que você se relaciona funcionam e terá estratégias para ter uma comunicação assertiva em seus relacionamentos interpessoais.
 
 #### Quer saber mais? 
 
