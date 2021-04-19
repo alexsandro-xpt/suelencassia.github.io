@@ -1,26 +1,25 @@
-# Você sabia que o formato do seu corpo pode explicar os conflitos que você possui em seus relacionamentos interpessoais?
-## Você tem um formato de corpo que revela a sua mente e explica a sua história de vida.
-##### 	Durante a sua formação (vida intrauterina até aos 5 anos de idade), quando o seu sistema nervoso estava sendo mielinizado, foram registradas dores e desenvolvidos recursos que moldaram o seu corpo e lhe deram a mente que você tem hoje.
+# Você mostra que está tudo bem, mas só você mesma sabe a dor que está dentro do seu peito!
 
-Em cada período seu sistema límbico estava registrando fatos ambientais que sua mente interpretava como dor, então seu sistema nervoso criava caminhos neurais desenvolvendo recursos para sair dessas dores formando os traços de caráter.
+Você sente que as pessoas te desprezam e não dão valor para suas ideias?
 
-Existem cinco traços de caráter:
+Você sente que está sendo abandonada mesmo sendo muito legal com as pessoas?
 
-* Esquizóide
+Você sente que as pessoas só chegam perto de você quando precisam de alguma coisa?
 
-* Oral
+Você sente que as pessoas jogam seus problemas em cima de você, te sobrecarregando e se um dia você precisar não vai ter ninguém para te ajudar?
 
-* Psicopata
+Você sente que nunca está boa o suficiente para começar fazer aquilo que você sempre quis fazer?
 
-* Masoquista
+Eu posso te explicar porque isso está acontecendo com você.
 
-* Rígido
+A resposta está no formato do seu corpo.
 
-Cada um deles agem e reagem no mundo de maneiras distintas e para você ter o autoconhecimento que irá te levar a entender como a sua mente funciona, você terá que fazer uma **análise corporal.** 
+Através do formato do seu corpo eu consigo mapear a sua mente e explicar a você como é o seu funcionamento, te mostrando porque essas coisas acontecem na sua vida e te dando o caminho para solucionar esses conflitos.
 
-Após o processo de mielinização o seu corpo foi moldado de acordo com o que ficou registrado em sua mente, por isso na análise corporal, observando o formato do seu corpo, irei te dar o mapeamento de sua mente.
+Conhecer a sua mente faz com que você consiga resolver os seus problemas com clareza, objetividade e velocidade.
 
-Através dessa análise você terá autoconhecimento: saberá quais são os seus recursos (habilidades), as dores que você tenta evitar e quais são os melhores ambientes para você existir; você irá entender como você **pensa, sente e age no mundo tendo um caminho para a solução dos seus conflitos**, você entenderá também como as mentes das pessoas que você se relaciona funcionam e terá estratégias para ter uma comunicação assertiva em seus relacionamentos interpessoais.
+Você tem um formato de corpo que revela a sua mente e explica a sua história de vida.
+
 
 #### Quer saber mais? 
 
