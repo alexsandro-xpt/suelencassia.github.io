@@ -1,6 +1,6 @@
 # Você mostra que está tudo bem, mas só você mesma sabe a dor que está dentro do seu peito!
 
-Você sente que as pessoas te desprezam e não dão valor para suas ideias?
+Você sente que as pessoas te desprezam e não te valorizam?
 
 Você sente que está sendo abandonada mesmo sendo muito legal com as pessoas?
 
