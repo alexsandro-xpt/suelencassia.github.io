@@ -36,9 +36,34 @@ Eu posso te explicar porque isso está acontecendo com você.
 
 A resposta está no formato do seu corpo.
 
-Através do formato do seu corpo eu consigo mapear a sua mente e explicar a você como é o seu funcionamento, te mostrando porque essas coisas acontecem na sua vida e te dando o caminho para solucionar esses conflitos.
+Analisando o formato do seu corpo, eu te mostro como a sua mente funciona dando a você consciência sobre suas ações e reações, com isso você terá estratégias para ter uma vida saudável solucionando os conflitos que aparecem em seu caminho.
 
 Conhecer a sua mente faz com que você consiga resolver os seus problemas com clareza, objetividade e velocidade.
+
+Você deve está se perguntando: 
+
+Como isso é possível?
+
+Isso é algum tipo de adivinhação, mágica ou algo assim?
+
+Não, isso não é mágica, é ciência com comprovação científica.
+
+Os 5 traços de carater surgiram com os achados dos cientistas Reich e Louis, eles descobriram que a mente e o corpo eram um só, estavam interligados, e definiram os traços.
+Então pesquisadores brasileiros do O Corpo Explica , criaram uma ferramenta capaz de mapear e quantificar esses traços no corpo e mente, dando clareza de como você senti, age e pensa.
+
+Durante a sua formação (vida intrauterina até aos 5 anos de idade), quando o seu sistema nervoso estava sendo mielinizado, foram registradas dores e desenvolvidos recursos que moldaram o seu corpo e lhe deram a mente que você tem hoje.
+Em cada período seu sistema límbico estava registrando fatos ambientais que sua mente interpretava como dor, então seu sistema nervoso criava caminhos neurais desenvolvendo recursos para sair dessas dores formando os traços de caráter.
+
+Existem cinco traços de caráter:
+Esquizóide, Oral, Psicopata, Masoquista, Rígido.
+
+Após o processo de mielinização o seu corpo foi moldado de acordo com o que ficou registrado em sua mente.
+
+🔹Você possui uma combinação desses 5 traços em sua mente. Conforme a porcentagem de cada um, será sua forma de existir no mundo.
+
+⚠️E com a análise corporal você terá o mapeamento completo de sua mente, você terá um gráfico com a quantidade de cada traço e terá um relatório explicando a você como é a sua forma de existir: quais são suas limitações (dores), seus recursos (qualidades), os melhores ambientes para você existir e quais são as suas necessidades.
+
+🤗Sabendo disso você terá estratégias para solucionar os conflitos que hoje você vivencia e conseguirá entender a mente das pessoas que você ama.
 
 Você tem um formato de corpo que revela a sua mente e explica a sua história de vida.
 
