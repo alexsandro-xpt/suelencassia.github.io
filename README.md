@@ -1,7 +1,9 @@
 # Não tente mudar o seu jeito de ser, apenas aprenda a ser quem você é!
 
 Você não é o que falam de você.
+
 Você não é o que fizeram com você.
+
 Você não é o que esperam de você.
 
 Você é quem você precisa ser!
