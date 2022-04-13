@@ -8,4 +8,4 @@ Saiba mais conhecendo meu currículo no [linkedin](https://www.linkedin.com/in/f
 
 #### Venha comigo!
 
-🤗 Me acompanhe no [Instagram](https://www.instagram.com/suelencassia.fono/) e no [facebook](https://fb.com/fonoaudiologa.suelencassia) !
+🤗 Me acompanhe no [Instagram](https://www.instagram.com/suelencassia.fono/) !
