@@ -1,6 +1,6 @@
-Sou Fonoaudióloga, pós graduada em fonoaudiologia educacional!
+Sou Fonoaudióloga, pós graduadanda em distúrbios de fala e linguagem!
 
-Atuo há 7 anos na reabilitação de fala e linguagem de crianças com TEA usando a ciência ABA!
+Atuo há 7 anos na reabilitação de fala e linguagem a crianças com TEA usando a ciência ABA!
 
 Sou implementadora do PECS nível 1, promovendo uma comunicação funcional.
 
