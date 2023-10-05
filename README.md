@@ -1,6 +1,4 @@
-**Atendimento Domiciliar**
-
-Reabilitação nos distúrbios da Comunicação e da Deglutição
+**Atendimento Domiciliar** 
 
 Sou Fonoaudióloga com experiencia desde 2014 na cidade de Ipatinga-Minas Gerais.
 Trabalhei no centro de reabilitação neurológica do hospital Márcio Cunha realizando reabilitação fonoaudiológica aos pacientes com distúrbios neurológicos adquiridos e câncer.
