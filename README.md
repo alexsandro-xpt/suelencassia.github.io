@@ -1,11 +1,10 @@
-Sou Fonoaudióloga, pós graduanda em distúrbios de fala e linguagem!
+**Atendimento Domiciliar**
 
-Atuo há 7 anos na reabilitação de fala e linguagem a crianças com TEA usando a ciência ABA!
+Reabilitação nos distúrbios da Comunicação e da Deglutição
 
-Sou implementadora do PECS nível 1, promovendo uma comunicação funcional.
 
-Saiba mais conhecendo meu currículo no [linkedin](https://www.linkedin.com/in/fonosuelen-c%C3%A1ssia/).
+✅Acesse meu currículo [linkedin](https://www.linkedin.com/in/fonosuelen-c%C3%A1ssia/)
 
-#### Venha comigo!
+✅Me acompanhe no [Instagram](https://www.instagram.com/suelencassia.fono/) 
 
-🤗 Me acompanhe no [Instagram](https://www.instagram.com/suelencassia.fono/) !
+✅Agende sua consulta pelo [Whatsapp](https://bit.ly/3T7N9fq)
