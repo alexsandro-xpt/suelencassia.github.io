@@ -1,8 +1,13 @@
 
-Sou Fonoaudióloga com experiência desde 2014 na cidade de Ipatinga-Minas Gerais.
-Trabalhei no centro de reabilitação neurológica do hospital Márcio Cunha realizando reabilitação fonoaudiológica aos pacientes com distúrbios neurológicos adquiridos e câncer.
-Realizei avaliação a beira leito e reabilitação fonoaudiológica em Disfagia, no Hospital Municipal Eliane Martins no período da Pandemia.
-Atualmente atuo em reabilitação da comunicação e deglutição após sequelas neurológicas a adultos e crianças no Hospital municipal Eliane Martins em Ipatinga-MG, no programa "Melhor em Casa" do Governo Federal.
+Sou fonoaudióloga com experiência desde 2014, atuando na cidade de Ipatinga, Minas Gerais. Ao longo da minha trajetória, desenvolvi ampla expertise na reabilitação de pacientes com distúrbios neurológicos adquiridos, com foco na reabilitação de disfagia e afasia, auxiliando na recuperação das funções de deglutição e comunicação.
+
+No Centro de Reabilitação Neurológica do Hospital Márcio Cunha, atuei na reabilitação fonoaudiológica de pacientes com sequelas neurológicas, oferecendo cuidado especializado e humanizado. Durante a pandemia, desempenhei um papel fundamental no Hospital Municipal Eliane Martins, realizando avaliações à beira leito e intervenções fonoaudiológicas em casos de disfagia, proporcionando suporte essencial em um período crítico.
+
+Atualmente, integro a equipe do SAD (Serviço de Atenção Domiciliar) do Hospital Municipal Eliane Martins, por meio da Prefeitura de Ipatinga-MG, onde trabalho na reabilitação da comunicação e da deglutição de pacientes adultos e pediátricos com sequelas neurológicas.
+
+Além disso, realizo atendimento particular voltado à reabilitação de distúrbios da comunicação e da deglutição por meio de terapia fonoaudiológica domiciliar (home care), garantindo conforto, personalização e atenção às necessidades individuais de cada paciente.
+
+Meu compromisso é promover a qualidade de vida e a autonomia dos meus pacientes, sempre com dedicação, ética e sensibilidade em cada etapa do tratamento.
 
 **Meu consultório é a sua casa!**  
 
