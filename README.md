@@ -1,15 +1,21 @@
 
-Sou fonoaudióloga com experiência desde 2014, atuando na cidade de Ipatinga, Minas Gerais. Ao longo da minha trajetória, desenvolvi ampla expertise na reabilitação de pacientes com distúrbios neurológicos adquiridos, com foco na reabilitação de disfagia e afasia, auxiliando na recuperação das funções de deglutição e comunicação.
+Sou fonoaudióloga com experiência desde 2014, atuando na cidade de Ipatinga, Minas Gerais. Sou pós graduada em Distúrbio da Linguagem oral e fala, ABA e TEA-Transtorno do Espectro Autista e estou realizando Especialização em Disfagia Orofaríngea no Instituto CEFAC-SP.
 
-No Centro de Reabilitação Neurológica do Hospital Márcio Cunha, atuei na reabilitação fonoaudiológica de pacientes com sequelas neurológicas, oferecendo cuidado especializado e humanizado. Durante a pandemia, desempenhei um papel fundamental no Hospital Municipal Eliane Martins, realizando avaliações à beira leito e intervenções fonoaudiológicas em casos de disfagia, proporcionando suporte essencial em um período crítico.
+Ao longo da minha trajetória, desenvolvi uma sólida experiência na reabilitação de pacientes com distúrbios neurológicos adquiridos, com ênfase na Disfagia e na Linguagem, auxiliando na recuperação da comunicação e da deglutição com acolhimento e profissionalismo.
 
-Atualmente, integro a equipe do SAD (Serviço de Atenção Domiciliar) do Hospital Municipal Eliane Martins, por meio da Prefeitura de Ipatinga-MG, onde trabalho na reabilitação da comunicação e da deglutição de pacientes adultos e pediátricos com sequelas neurológicas.
+No Centro de Reabilitação Neurológica do Hospital Márcio Cunha, tive a oportunidade de atuar diretamente na reabilitação de pacientes com sequelas neurológicas, sempre prezando por um atendimento especializado e humanizado.
 
-Além disso, realizo atendimento particular voltado à reabilitação de distúrbios da comunicação e da deglutição por meio de terapia fonoaudiológica domiciliar (home care), garantindo conforto, personalização e atenção às necessidades individuais de cada paciente.
+Durante a pandemia, desempenhei um papel fundamental no Hospital Municipal Eliane Martins, atuando à beira-leito com pacientes em casos críticos de disfagia, garantindo suporte essencial em um momento delicado e desafiador.
 
-Meu compromisso é promover a qualidade de vida e a autonomia dos meus pacientes, sempre com dedicação, ética e sensibilidade em cada etapa do tratamento.
+Atualmente, faço parte da equipe do SAD (Serviço de Atenção Domiciliar) do Hospital Municipal Eliane Martins, por meio da Prefeitura de Ipatinga-MG, atuando na reabilitação da comunicação e da deglutição de pacientes adultos e pediátricos com condições neurológicas.
 
-**Meu consultório é a sua casa!**  
+Também integro a equipe do NATEA (Núcleo de Atendimento ao Transtorno do Espectro Autista), onde realizo atendimentos individuais, em grupo e oficinas para pais, contribuindo para o desenvolvimento e o bem-estar de crianças e adolescentes com TEA.
+
+Meu compromisso é promover a autonomia, a qualidade de vida e a dignidade dos meus pacientes, com escuta ativa, empatia, ética e dedicação em cada etapa do cuidado fonoaudiológico.
+
+Seja bem-vindo(a)! Estou aqui para caminhar ao seu lado, respeitando a sua história e oferecendo o melhor da fonoaudiologia.
+
+**Aguardo seu contato!**  
 
 ✅Acesse meu currículo [linkedin](https://www.linkedin.com/in/fonosuelen-c%C3%A1ssia/)
 
@@ -17,4 +23,4 @@ Meu compromisso é promover a qualidade de vida e a autonomia dos meus pacientes
 
 ✅Agende sua consulta clicando aqui  [Whatsapp](https://bit.ly/3T7N9fq)
 
-**Fono em casa**
+**Juntos somos mais fortes!**
