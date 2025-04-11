@@ -11,6 +11,8 @@ Atualmente, faço parte da equipe do SAD (Serviço de Atenção Domiciliar) do H
 
 Também integro a equipe do NATEA (Núcleo de Atendimento ao Transtorno do Espectro Autista), onde realizo atendimentos individuais, em grupo e oficinas para pais, contribuindo para o desenvolvimento e o bem-estar de crianças e adolescentes com TEA.
 
+Realizo Atendimento Domiciliar Individualizado com vagas restritas, entre em contato e agende seu horário!
+
 Meu compromisso é promover a autonomia, a qualidade de vida e a dignidade dos meus pacientes, com escuta ativa, empatia, ética e dedicação em cada etapa do cuidado fonoaudiológico.
 
 Seja bem-vindo(a)! Estou aqui para caminhar ao seu lado, respeitando a sua história e oferecendo o melhor da fonoaudiologia.
