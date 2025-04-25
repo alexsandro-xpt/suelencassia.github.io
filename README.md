@@ -1,23 +1,35 @@
 
-Sou fonoaudióloga com experiência desde 2014, atuando na cidade de Ipatinga, Minas Gerais. Sou pós graduada em Distúrbio da Linguagem oral e fala, ABA e TEA-Transtorno do Espectro Autista e estou realizando Especialização em Disfagia Orofaríngea no Instituto CEFAC-SP.
+Sou Fonoaudióloga com experiência desde 2014, atuando em Ipatinga (MG). Minha trajetória é marcada por um compromisso profundo com o cuidado humanizado, a escuta ativa e o respeito às particularidades de cada paciente — especialmente crianças neurodivergentes, com quem compartilho uma vivência afetiva também como mãe atípica.
 
-Ao longo da minha trajetória, desenvolvi uma sólida experiência na reabilitação de pacientes com distúrbios neurológicos adquiridos, com ênfase na Disfagia e na Linguagem, auxiliando na recuperação da comunicação e da deglutição com acolhimento e profissionalismo.
+Sou pós-graduada em:
+•	Distúrbios da Fala e da Linguagem
+•	ABA (Applied Behavior Analysis)
+•	TEA – Transtorno do Espectro Autista
 
-No Centro de Reabilitação Neurológica do Hospital Márcio Cunha, tive a oportunidade de atuar diretamente na reabilitação de pacientes com sequelas neurológicas, sempre prezando por um atendimento especializado e humanizado.
+Atualmente, estou em processo de especialização em Disfagia Orofaríngea pelo Instituto CEFAC-SP.
 
-Durante a pandemia, desempenhei um papel fundamental no Hospital Municipal Eliane Martins, atuando à beira-leito com pacientes em casos críticos de disfagia, garantindo suporte essencial em um momento delicado e desafiador.
+Sou habilitada nas seguintes metodologias:
+•	PECS (Sistema de Comunicação por Troca de Figuras) – PECS Brasil
+•	Método Multigestos – pistas multissensoriais para facilitar a produção da fala
+•	Método das Boquinhas – intervenção em distúrbios e dificuldades da leitura e escrita
 
-Atualmente, faço parte da equipe do SAD (Serviço de Atenção Domiciliar) do Hospital Municipal Eliane Martins, por meio da Prefeitura de Ipatinga-MG, atuando na reabilitação da comunicação e da deglutição de pacientes adultos e pediátricos com condições neurológicas.
 
-Também integro a equipe do NATEA (Núcleo de Atendimento ao Transtorno do Espectro Autista), onde realizo atendimentos individuais, em grupo e oficinas para pais, contribuindo para o desenvolvimento e o bem-estar de crianças e adolescentes com TEA.
+Ao longo dos anos, desenvolvi uma sólida atuação na reabilitação de pacientes com distúrbios neurológicos, especialmente na área da linguagem e da disfagia.
+•	No Centro de Reabilitação Neurológica do Hospital Márcio Cunha, atuei diretamente na reabilitação de pacientes com sequelas neurológicas, com um olhar sempre centrado no cuidado integral.
+• Realizo, desde a minha formação (2014), reabilitação Fonoaudiológica a crianças e adolescentes com TEA e outros transtornos do neurodesenvolvimento em clínicas privadas.
+•	Atualmente, integro a equipe do Serviço de Atenção Domiciliar (SAD) do mesmo hospital, por meio da Prefeitura de Ipatinga, atendendo pacientes com condições neurológicas — adultos e pediátricos — no conforto de seus lares.
+•	Também faço parte da equipe do NATEA (Núcleo de Atendimento ao Transtorno do Espectro Autista), onde realizo atendimentos individuais, em grupo e oficinas para pais, promovendo o desenvolvimento e a autonomia de crianças e adolescentes com TEA.
 
-Realizo Atendimento Domiciliar Individualizado com vagas restritas, entre em contato e agende seu horário!
 
-Meu compromisso é promover a autonomia, a qualidade de vida e a dignidade dos meus pacientes, com escuta ativa, empatia, ética e dedicação em cada etapa do cuidado fonoaudiológico.
+Ofereço atendimento particular com vagas limitadas, totalmente personalizado, respeitando o tempo, o perfil e as necessidades de cada criança e sua família.
 
-Seja bem-vindo(a)! Estou aqui para caminhar ao seu lado, respeitando a sua história e oferecendo o melhor da fonoaudiologia.
+Meu compromisso é promover a autonomia, a qualidade de vida e a dignidade dos meus pacientes, com escuta ativa, empatia, ética e dedicação, caminhando ao lado de cada família com respeito à sua história e compromisso com os melhores resultados da fonoaudiologia.
+
+Seja bem-vindo(a)!
+Vamos construir esse cuidado juntos.
 
 **Aguardo seu contato!**  
+________________________________________
 
 ✅Acesse meu currículo [linkedin](https://www.linkedin.com/in/fonosuelen-c%C3%A1ssia/)
 
@@ -25,4 +37,5 @@ Seja bem-vindo(a)! Estou aqui para caminhar ao seu lado, respeitando a sua hist�
 
 ✅Agende sua consulta clicando aqui  [Whatsapp](https://bit.ly/3T7N9fq)
 
-**Juntos somos mais fortes!**
+**Cuide da sua mente!**
+**Cuide da mente de seu filho(a)!**
