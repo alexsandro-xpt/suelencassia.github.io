@@ -29,7 +29,7 @@ Seja bem-vindo(a)!
 Vamos construir esse cuidado juntos.
 
 **Aguardo seu contato!**  
-________________________________________
+______________________________________________________________________________________________________________________________________________________________________________________________________
 
 ✅Acesse meu currículo [linkedin](https://www.linkedin.com/in/fonosuelen-c%C3%A1ssia/)
 
