@@ -26,7 +26,6 @@ Ofereço atendimento particular com vagas limitadas, totalmente personalizado, r
 Meu compromisso é promover a autonomia, a qualidade de vida e a dignidade dos meus pacientes, com escuta ativa, empatia, ética e dedicação, caminhando ao lado de cada família com respeito à sua história e compromisso com os melhores resultados da fonoaudiologia.
 
 Seja bem-vindo(a)!
-Vamos construir esse cuidado juntos.
 
 **Aguardo seu contato!**  
 ______________________________________________________________________________________________________________________________________________________________________________________________________
