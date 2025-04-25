@@ -27,8 +27,8 @@ Meu compromisso é promover a autonomia, a qualidade de vida e a dignidade dos m
 
 Seja bem-vindo(a)!
 
+
 **Aguardo seu contato!**  
-______________________________________________________________________________________________________________________________________________________________________________________________________
 
 ✅Acesse meu currículo [linkedin](https://www.linkedin.com/in/fonosuelen-c%C3%A1ssia/)
 
@@ -36,5 +36,4 @@ ________________________________________________________________________________
 
 ✅Agende sua consulta clicando aqui  [Whatsapp](https://bit.ly/3T7N9fq)
 
-**Cuide da sua mente!**
-**Cuide da mente de seu filho(a)!**
+
