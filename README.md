@@ -37,3 +37,5 @@ Seja bem-vindo(a)!
 ✅Agende sua consulta clicando aqui  [Whatsapp](https://bit.ly/3T7N9fq)
 
 
+"Porque eu, o SENHOR, o seu Deus, o seguro pela mão direita e lhe digo: 'Não tema; eu o ajudarei'."
+**Isaías 41:13**
