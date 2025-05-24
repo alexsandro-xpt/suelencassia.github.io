@@ -6,7 +6,7 @@ Sou pós-graduada em:
 •	ABA (Applied Behavior Analysis)
 •	TEA – Transtorno do Espectro Autista
 
-Atualmente, estou em processo de especialização em Disfagia Orofaríngea pelo Instituto CEFAC-SP.
+Atualmente, estou em processo de especialização em Linguagem, com ênfase nos Distúrbios de Aprendizagem e na Atuação Educacional  pelo Instituto CEFAC-SP.
 
 Sou habilitada nas seguintes metodologias:
 •	PECS (Sistema de Comunicação por Troca de Figuras) – PECS Brasil
