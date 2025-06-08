@@ -34,7 +34,8 @@ Seja bem-vindo(a)!
 
 ✅Me acompanhe no [Instagram](https://www.instagram.com/suelencassia.fono/) 
 
-✅Agende sua consulta clicando aqui  [Whatsapp](https://bit.ly/3T7N9fq)
+✅Entre em contato pelo [e-mail](mailto:suelencassiafonoaudiologa@gmail.com)
+
 
 
 "Porque eu, o SENHOR, o seu Deus, o seguro pela mão direita e lhe digo: 'Não tema; eu o ajudarei'."
